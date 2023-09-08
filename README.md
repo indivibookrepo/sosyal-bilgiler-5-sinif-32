@@ -1,0 +1,1 @@
+# sosyal-bilgiler-5-sinif-32
